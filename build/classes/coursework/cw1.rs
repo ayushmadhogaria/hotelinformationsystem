@@ -1,0 +1,10 @@
+week6.cw1$2
+week6.cw1
+week6.cw1$1
+week6.cw1$9
+week6.cw1$8
+week6.cw1$7
+week6.cw1$6
+week6.cw1$5
+week6.cw1$4
+week6.cw1$3
